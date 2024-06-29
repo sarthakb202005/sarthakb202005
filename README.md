@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on data driven astronomical projects
 - 📫 How to reach me: e-mail me at bondresarthak@gmail.com :))
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: We all are made up of stardust! :)
 
 <!---
 sarthakb202005/sarthakb202005 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
