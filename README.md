@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sarthakb202005
-- 👀 I’m interested in Astronomical and Space Sciences(data driven astronomy, geology and planetary mapping)
+- 👀 I’m interested in Astronomical , Materials and Space Sciences(data driven research, materials modelling, data-driven astronomy)
 - 🌱 I’m currently learning astronomy, and its allied tech skills. 
 - 💞️ I’m looking forward to collaborate on similar relevant projects on the aforementioned themes.
 - 📫 How to reach me: +91 9763230133/ bondresarthak@gmail.com :))
